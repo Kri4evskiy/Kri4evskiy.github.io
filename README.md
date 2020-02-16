@@ -1,3 +1,3 @@
 # Кричевский Станислав
-Ссылки на страницы            Kri4evskiy.github.io
+Ссылки на страницы                  Kri4evskiy.github.io
 ***
